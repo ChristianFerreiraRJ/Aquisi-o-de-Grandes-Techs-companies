@@ -1,0 +1,1 @@
+# Aquisi-o-de-Grandes-Techs-companies
